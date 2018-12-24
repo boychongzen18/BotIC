@@ -1,6 +1,6 @@
 # BotIC
 
-link Download Applikasi Instantly Cash : https://shortid.co/RhdjJ
+Link Download Applikasi Instantly Cash : https://shortid.co/RhdjJ
 
 Nuyul dan Multi ID bisa di Hub di bawah
 
